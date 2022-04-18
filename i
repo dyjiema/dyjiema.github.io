@@ -1,1 +1,1 @@
-[moc&hcet] -> [gniyg, nix@]pp/ats#moc{*}"hcet", gniy'gnix&1ppa' <ts?>
+[mo1c&hcet] -> [gniyg, nix@]pp/ats#moc{*}"hcet", gniy'gnix&1ppa' <ts?>
