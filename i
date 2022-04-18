@@ -1,1 +1,1 @@
-[moc&hcet] -> [gniyg, nix@]pp/ats#moc{*}"hce2t", gniy'gnix&1ppa' <ts?>
+{*}moc{*}, "hcet", gniy, 'gnix&ppa' <ts?>[ ]
