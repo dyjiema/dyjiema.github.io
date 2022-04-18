@@ -1,0 +1,1 @@
+am % ei [ji] {yi-d}  am [ei] jy@d
