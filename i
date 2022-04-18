@@ -1,1 +1,1 @@
-am % ei [ji] {yi-d}  am [ei] jy@d
+[moc&hcet] -> [gniyg, nix@]pp/ats#moc{*}"hcet", gniy'gnix&1ppa' <ts?>
